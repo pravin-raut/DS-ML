@@ -1,1 +1,0 @@
-All Practical labs will be done here
